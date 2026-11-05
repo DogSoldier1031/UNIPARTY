@@ -1,6 +1,6 @@
 # UNIPARTY
 
-Sorry but after watching all of these things happen it’s just solidified my view of both parties being full of fascistic heartless pieces of shit.  A few examples:
+Sorry but after watching all of these things happen it’s just solidified my view of both parties being full of heartless fascists.  A few examples:
 
 Literally sticking their tongues out and laughing at Palestinians protesting the genocide if their families with the full backing of Biden and Kamala.  Hell, Elizabeth Warren couldn’t even be bothered to send a staff member out to talk to comrades from the Palestinian Youth Movement when we walked to her office.  Couldn’t even pretend to care about kids who’ve had their entire bloodlines wiped out by us and the zionazis.  Markey showed some humanity towards them, so at least there’s that.
 
