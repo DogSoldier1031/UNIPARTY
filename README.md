@@ -26,6 +26,12 @@ He also seems to love watch Muslims, Arabs, Iranians, etc annihilated including 
 
 https://www.pennlive.com/politics/2026/03/fetterman-declines-to-sign-letter-demanding-answers-on-airstrikes-that-killed-iranian-students.html
 
+Hell, the DNC helped boost MAGA candidates and helped spread the movement
+
+https://www.opensecrets.org/news/2022/07/democrats-spend-millions-on-republican-primaries/
+
+https://www.google.com/goto?url=CAESlQEBxCJF10CoYM_8sVPxHh4mRaBfZxPfOmAnTaiIbM_WFXTRQUsSnXsIK8D_HjMBhKo-mNa0l5pIZLres1nRTXuk5wWIKEYGD2lWfYT2WElMNU2hyo4EjzHKEjD8LmKZH34kZX1PJPosrEydoGNEjjLCgUnIJKaHaNRe1hEGptBT0AnYMOpkwn9ZR-hHUXMMDNI8uKeCfg
+
 And while the 2 wings of the fascist uniparty  are committing genocide against children in a concentration camp, Harris proudly proclaimed wanting to make the US military even deadlier
 
 https://www.google.com/goto?url=CAESgwEBxCJF1zCiVTOal4O3hfmsqAIrA7vrpDNcDCoLYSfjQoq_ld4gCfk-aD4uVvcmqXNYG1lOgbCR2Sn3xZnJKaZsQIft4Tx7Tr-BqYRbhfcwbbTq3-ZjF5x4PyRxHiXJwpmbNHaA-QkF90uLy8JqLNrrsfS9EA0Doo21pYusjCvDRE61FA
