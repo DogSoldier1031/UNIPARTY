@@ -100,4 +100,12 @@ https://www.pbs.orgSyrian Militant and Former Al Qaeda Leader Seeks Wider Accept
 
 https://www.bbc.com/news/articles/c0q0w1g8zqvo
 
+Much of the DNC leadership are also terrible on the environment such as ignoring environmental protections to continue building Trump’s wall, and many were more than happy to support a wall/fence when the genocidal assholes in the bush regime wanted to build it.  Not to mention years of trying to spread fracking around the world.
+
+https://www.nbcnews.com/politics/immigration/biden-administration-waives-federal-laws-allow-border-wall-constructio-rcna118959
+
+https://www.bostonglobe.com/news/politics/2017/01/26/when-wall-was-fence-and-democrats-embraced/QE7ieCBXjXVxO63pLMTe9O/story.html
+
+https://theintercept.com/2016/05/23/hillary-clinton-fracking/
+
 It’s a bad cop good cop regime where both parties play their role in enacting imperialism/fascism worldwide.  I could keep piling more and more examples on but there are literally too many to remember.  So I’m sorry, but I view blue and red MAGA as 2 wings of the same fascist regime.  
