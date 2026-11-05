@@ -14,6 +14,10 @@ One of the top zionazis in US politics is that racist sack of shit Fetterman who
 
 https://www.google.com/goto?url=CAESkAEBxCJF18Pf008mq7-LQkoqYQJP9dJrmQtr0wnuTp1zRAkzMPm4Dq-IB7-UsZRhhauCZnlPTqlGhO1LfDbecGrTEVzaVRUBvCyjtLsFpzi3XSXjT0oQjJnOereBVQ5V8j5anKT4WGSUCJZ4O1_8Ris0JaFNBR-zDzW7U4psJFH3Sb1cO4OfgVVBdoU7bTO-06c
 
+He also seems to love watch Muslims, Arabs, Iranians, etc annihilated including little schoolgirls 
+
+https://www.pennlive.com/politics/2026/03/fetterman-declines-to-sign-letter-demanding-answers-on-airstrikes-that-killed-iranian-students.html
+
 And while the 2 wings of the fascist uniparty  are committing genocide against children in a concentration camp, Harris proudly proclaimed wanting to make the US military even deadlier
 
 https://www.google.com/goto?url=CAESgwEBxCJF1zCiVTOal4O3hfmsqAIrA7vrpDNcDCoLYSfjQoq_ld4gCfk-aD4uVvcmqXNYG1lOgbCR2Sn3xZnJKaZsQIft4Tx7Tr-BqYRbhfcwbbTq3-ZjF5x4PyRxHiXJwpmbNHaA-QkF90uLy8JqLNrrsfS9EA0Doo21pYusjCvDRE61FA
