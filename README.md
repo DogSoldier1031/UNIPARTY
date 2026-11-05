@@ -10,7 +10,7 @@ And while the 2 wings of the fascist uniparty  are committing genocide against c
 
 https://www.google.com/goto?url=CAESgwEBxCJF1zCiVTOal4O3hfmsqAIrA7vrpDNcDCoLYSfjQoq_ld4gCfk-aD4uVvcmqXNYG1lOgbCR2Sn3xZnJKaZsQIft4Tx7Tr-BqYRbhfcwbbTq3-ZjF5x4PyRxHiXJwpmbNHaA-QkF90uLy8JqLNrrsfS9EA0Doo21pYusjCvDRE61FA
 
-She was also a corrupt DA whose office withheld exclusive evidence, fought against payments to the wrongfully accused, supported ridiculous tough on crime shit, etc etc.  Many members of the black and brown community in California despise her because of her time as DA.  I don’t trust her, Biden, or most of the DNC anymore than red MAGA when it comes to upholding the law and civil rights.  
+She was also a corrupt DA whose office withheld exculpatory evidence, fought against payments to the wrongfully accused, supported ridiculous tough on crime shit, etc etc.  Many members of the black and brown community in California despise her because of her time as DA.  I don’t trust her, Biden, or most of the DNC anymore than red MAGA when it comes to upholding the law and civil rights.  
 
 https://theappeal.org/politicalreport/kamala-harris-was-a-tough-on-crime-prosecutor-in-a-black-lives-matter-era/
 
