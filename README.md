@@ -46,7 +46,7 @@ https://news.law.fordham.edu/blog/2019/10/15/kamala-harriss-offices-fought-payme
 
 Obama and Clinton happily destroyed Libya and helped usher slavery and ethnic cleansing against black Africans into their modern society all because Gaddafi posed a threat to French/US/Western control of African currencies.
 
- https://www.frontiersin.org/journals/political-science/articles/10.3389/fpos.2025.1536457/full
+https://www.frontiersin.org/journals/political-science/articles/10.3389/fpos.2025.1536457/full
 
 https://www.bbc.com/news/magazine-16051349
 
@@ -56,7 +56,7 @@ Hillary was one of the most outspoken supporters of the Iraq War and a ton of th
 
 https://awpc.cattcenter.iastate.edu/communication/hillary-clinton-iraq-war-vote-speech-oct-10-2002
 
-The DNC are just as willing to  manipulate votes and corrupt elections in favor of corporate candidates 
+The DNC are just as willing to manipulate votes and corrupt elections in favor of corporate candidates as the GOP is
 
 https://www.cbsnews.com/news/dnc-interim-chairwoman-passed-debate-questions-along-to-clinton-campaign/
 
