@@ -120,4 +120,10 @@ https://www.bostonglobe.com/news/politics/2017/01/26/when-wall-was-fence-and-dem
 
 https://theintercept.com/2016/05/23/hillary-clinton-fracking/
 
+Not to mention the ACA hurting many and convincing many liberals that it's good enough despite merging the government with private insurance companies.
+
+"Doctors and nurses contend with growing requirements for mind-numbing electronic documentation1b in a health care marketplace increasingly tilted toward giant insurers and hospital conglomerates that amass power through consolidation. Finally, the system’s administrative complexity, which robs patients and providers of time, money, and morale, was further fueled by the ACA."
+
+https://pmc.ncbi.nlm.nih.gov/articles/PMC4880224/
+
 It’s a bad cop good cop regime where both parties play their role in enacting imperialism/fascism worldwide.  I could keep piling more and more examples on but there are literally too many to remember.  So I’m sorry, but I view blue and red MAGA as 2 wings of the same fascist regime.  
