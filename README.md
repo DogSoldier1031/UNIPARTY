@@ -42,6 +42,12 @@ Hillary was one of the most outspoken supporters of the Iraq War and a ton of th
 
 https://awpc.cattcenter.iastate.edu/communication/hillary-clinton-iraq-war-vote-speech-oct-10-2002
 
+The DNC are just as willing to  manipulate votes and corrupt elections in favor of corporate candidates 
+
+https://www.cbsnews.com/news/dnc-interim-chairwoman-passed-debate-questions-along-to-clinton-campaign/
+
+
+
 And the Clintons have fucked Haiti over royally for years, even fighting against raising their minimum wages because DNC/GOP funders don’t want to lose their slave labor
 
 https://www.workers.org/2016/03/24276/
