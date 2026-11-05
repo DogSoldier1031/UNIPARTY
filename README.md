@@ -66,6 +66,12 @@ And I personally witnessed Mayor Wu and her democratic colleagues supporting cop
 
 https://www.thecrimson.com/article/2024/4/28/wu-cancels-event-emerson-palestine-encampment-backlash/
 
+Obama himself was proud to proclaim himself a Reaganite and praised Reagan.  And it's especially messed up since he praised Reagan's gun control laws that just happened to be put in place when The Black Panthers showed up armed to protect black voters from far right assholes like Reagan himself
+
+https://www.npr.org/2011/02/04/133499514/what-obama-is-learning-from-reagans-example
+
+https://www.ms.now/rachel-maddow-show/obama-claims-reagan-legacy-his-own-msna29050
+
 I could literally go on for days with examples of the DNC having as much blood on their own hands.  Hell, Biden is a racist sack of shit just like Trump.  He was literally pro segregation because he didn’t want his children growing up in a “racial jungle,” told the black community that they are a homogenous group, mocked Indian Americans and their accents,
 
 https://www.facebook.com/story.php?story_fbid=10160458592229062&id=KHOU11&hpir=1
