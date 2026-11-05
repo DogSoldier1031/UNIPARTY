@@ -6,6 +6,10 @@ Literally sticking their tongues out and laughing at Palestinians protesting the
 
 https://www.facebook.com/reel/1171584840601261/
 
+Many of AIPAC's, and other zionazi, bribe receipts have been top DNC figures
+
+https://www.opensecrets.org/industries/summary?cycle=All&ind=Q05&recipdetail=S
+
 And while the 2 wings of the fascist uniparty  are committing genocide against children in a concentration camp, Harris proudly proclaimed wanting to make the US military even deadlier
 
 https://www.google.com/goto?url=CAESgwEBxCJF1zCiVTOal4O3hfmsqAIrA7vrpDNcDCoLYSfjQoq_ld4gCfk-aD4uVvcmqXNYG1lOgbCR2Sn3xZnJKaZsQIft4Tx7Tr-BqYRbhfcwbbTq3-ZjF5x4PyRxHiXJwpmbNHaA-QkF90uLy8JqLNrrsfS9EA0Doo21pYusjCvDRE61FA
