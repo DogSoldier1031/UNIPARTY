@@ -12,6 +12,12 @@ https://kfoxtv.com/news/nation-world/aipac-says-hundreds-of-pro-israel-democrats
 
 https://www.opensecrets.org/industries/summary?cycle=All&ind=Q05&recipdetail=S
 
+Some even support zionazis to the point they endorse MAGA republicans to keep the scary brown man with a Muslim sounding name out of office.
+
+https://abcnews.com/amp/US/wireStory/el-sayeds-primary-opponent-stuns-democrats-endorsing-republican-137749193
+
+https://www.google.com/goto?url=CAESlAEBxCJF1xqBvaT1BKJlaDBFaa80YiVilImlqjP1degNoO52PoaK8y0XTXmrmid1kAs5GadZ9KBF2o7G4za_gpuWPYXkK84LI0XSQdnzGot__ytaq6kTIz8bXnQDG4obOQXadQB1Ztw6ZJPM9ATCzrznTzcW9xqV0-L74jui1HBtFqT09gZt-f_JDrkH3RA6HylmbgVD
+
 One of the top zionazis in US politics is that racist sack of shit Fetterman who called cops on his neighbor fir jogging while black
 
 https://www.google.com/goto?url=CAESkAEBxCJF18Pf008mq7-LQkoqYQJP9dJrmQtr0wnuTp1zRAkzMPm4Dq-IB7-UsZRhhauCZnlPTqlGhO1LfDbecGrTEVzaVRUBvCyjtLsFpzi3XSXjT0oQjJnOereBVQ5V8j5anKT4WGSUCJZ4O1_8Ris0JaFNBR-zDzW7U4psJFH3Sb1cO4OfgVVBdoU7bTO-06c
