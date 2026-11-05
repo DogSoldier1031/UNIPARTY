@@ -88,7 +88,7 @@ Then there’s all the democratic politicians who were happy to throw trans peop
 
 https://www.google.com/goto?url=CAESngEBxCJF11aqBFtcEBRs4d54i6OpipJx2xHZhmvZ1nt-drarNaW-hJTDt70dcR4jXEDbfj0BFwjCIyONFwlkhL_TAUSkW6qVz3bsO63JQyS5DcOfuigl6St0XAfDtuvGLBp_Wg-hgBQUxQxthb4lfEmBcq5S70odmRkvunHVBTHqDg6AFBgrLgOWWNMaVdLOswgraYx9MboAD3ckgCgLpg
 
-The Obama regime also “accidentally” gave Mexican cartels a shitload of weapons claiming it was to later disarm them.  Sorry if I don’t buy that from the US government and its long track record of arming cartels and fundamentalists to prevent socialism from taking root anywhere.  And it also helped to fortify Trumps anti-Mexican cartel rhetoric and gain him more support for his bs
+The Obama regime also “accidentally” gave Mexican cartels a shitload of weapons claiming it was to later disarm them.  Sorry if I don’t buy that from the US government and its long track record of arming cartels and fundamentalists to prevent socialism and/or anti imperialism from taking root anywhere.  And it also helped to fortify Trumps anti-Mexican cartel rhetoric and gain him more support for his bs
 
 https://en.wikipedia.org/wiki/ATF_gunwalking_scandal
 
