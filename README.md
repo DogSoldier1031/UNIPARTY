@@ -6,7 +6,7 @@ Literally sticking their tongues out and laughing at Palestinians protesting the
 
 https://www.facebook.com/reel/1171584840601261/
 
-Many of AIPAC's, and other zionazi, bribe receipts have been top DNC figures who have been more than happy to support the genocide of Palestinians.  They endorse a statebthat practices apartheid, eugenics, torture, starvation, etc.
+Many of AIPAC's, and other zionazi, bribe receipts have been top DNC figures who have been more than happy to support the genocide of Palestinians.  They endorse a state that practices apartheid, eugenics, torture, starvation as a weapon, etc.
 
 https://kfoxtv.com/news/nation-world/aipac-says-hundreds-of-pro-israel-democrats-and-republicans-won-in-the-midterm-elections-thomas-massie-marjorie-taylor-greene?teaserSource=databricks
 
