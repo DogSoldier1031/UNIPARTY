@@ -74,6 +74,17 @@ And the Clintons have fucked Haiti over royally for years, even fighting against
 
 https://www.workers.org/2016/03/24276/
 
+Not to mention the genocidal sanctions on Iraq that killed at least 500,000 Iraqi children amd Albright got on camera and said it's a proce worth paying.  People working for the Un quit and called out the horrors the Clinton regime was carrying out
+
+"During his presidency, Bill Clinton presided over the most devastating regime of economic sanctions in history, that the U.N. estimated took the lives of as many as a million Iraqis, the vast majority of them children. In May of 1996, 60 Minutes aired an interview with Madeleine Albright, who at the time was Clinton’s U.N. ambassador. Correspondent Leslie Stahl said to Albright, “We have heard that a half-million children have died. I mean, that’s more children than died in Hiroshima. And — and, you know, is the price worth it?”
+Madeleine Albright replied, “I think this is a very hard choice, but the price — we think the price is worth it.”
+
+https://www.democracynow.org/2004/7/30/democracy_now_confronts_madeline_albright_on
+
+"Four thousand to five thousand children are dying unnecessarily every month due to the impact of sanctions because of the breakdown of water and sanitation, inadequate diet and the bad internal health situation."
+
+https://www.the-independent.com/news/un-aid-chief-resigns-over-iraq-sanctions-1175447.html
+
 Obama runs on stopping wars then drops thousands of tons worth of bombs on a handful of countries and destroyed multiple that still haven’t recovered
 
 https://www.theguardian.com/commentisfree/2017/jan/09/america-dropped-26171-bombs-2016-obama-legacy
