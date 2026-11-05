@@ -80,10 +80,12 @@ The Obama regime also “accidentally” gave Mexican cartels a shitload of weap
 
 https://en.wikipedia.org/wiki/ATF_gunwalking_scandal
 
-Not unlike his arming of “rebels” in a Syria who worked with, defected to, and supplied Al Nusra Front, ISIS and other religious fundamentalists who were slaughtering mostly fellow Muslims/Arabs/etc.  And he and Hillary’s toppling of Syria also enabled Trump to install a fundamentalist who worked with Al Qaeda and other Islamist extremist groups whose image they all helped whitewash.
+Not unlike Obama and his cronies arming of “rebels” in a Syria who worked with, defected to, and supplied Al Nusra Front, ISIS and other religious fundamentalists who were slaughtering mostly fellow Muslims/Arabs/etc.  And he and Hillary’s toppling of Syria also enabled Trump to install a fundamentalist who worked with Al Qaeda and other Islamist extremist groups whose image they all helped whitewash.
 
 https://en.wikipedia.org/wiki/Timber_Sycamore
 
-PBShttps://www.pbs.orgSyrian Militant and Former Al Qaeda Leader Seeks Wider Acceptance in ...
+https://www.pbs.orgSyrian Militant and Former Al Qaeda Leader Seeks Wider Acceptance in ...
+
+https://www.bbc.com/news/articles/c0q0w1g8zqvo
 
 It’s a bad cop good cop regime where both parties play their role in enacting imperialism/fascism worldwide.  I could keep piling more and more examples on but there are literally too many to remember.  So I’m sorry, but I view blue and red MAGA as 2 wings of the same fascist regime.  
