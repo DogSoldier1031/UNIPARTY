@@ -78,6 +78,12 @@ He also helped Bill with writing the law the rapidly militarized the police and 
 
 https://en.wikipedia.org/wiki/Violent_Crime_Control_and_Law_Enforcement_Act
 
+Which Hillary then went on to support by calling the young minority victims of the US government and it's racism super predators, as if she and her fellow leaders aren't far more dangerous predators than any gang members 
+
+"Video footage of Hillary Clinton defending the bill in 1994 by calling young people in gangs "super predators" who need to "be brought to heel" have been widely circulated during the campaign by activists in the Black Lives Matter protest movement."
+
+https://www.reuters.com/article/world/us/bill-clinton-defends-wifes-super-predator-comment-to-protesters-idUSKCN0X42NR/
+
 He also, along with the Clinton regime, proudly wrote the prototype act that became the Patriot Act and supported it as Bush enacted the updated version.  And Biden proudly reminded everyone that he was the original author 
 
 https://en.wikipedia.org/wiki/Omnibus_Counterterrorism_Act_of_1995
