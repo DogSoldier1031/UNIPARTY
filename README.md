@@ -64,6 +64,12 @@ https://www.cbsnews.com/news/dnc-interim-chairwoman-passed-debate-questions-alon
 
 https://www.npr.org/sections/thetwo-way/2017/11/03/561768006/book-reveals-clinton-campaign-effectively-controlled-dnc-as-early-as-2015
 
+The Clintons were very friendly with Trump for years, even sitting front row at one of his weddings.  As Carlin said, “It's a big club, and you ain't in it”
+
+https://www.nytimes.com/2016/11/06/magazine/when-hillary-and-donald-were-friends.html
+
+https://www.bloomberg.com/news/articles/2015-06-16/fyi-hillary-clinton-had-a-front-pew-seat-at-donald-trump-s-wedding?leadSource=uverify%20wall
+
 And the Clintons have fucked Haiti over royally for years, even fighting against raising their minimum wages because DNC/GOP funders don’t want to lose their slave labor
 
 https://www.workers.org/2016/03/24276/
