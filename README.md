@@ -78,7 +78,7 @@ He also helped Bill with writing the law the rapidly militarized the police and 
 
 https://en.wikipedia.org/wiki/Violent_Crime_Control_and_Law_Enforcement_Act
 
-Which Hillary then went on to support by calling the young minority victims of the US government and it's racism super predators, as if she and her fellow leaders aren't far more dangerous predators than any gang members 
+Which Hillary then went on to support by calling the young minority victims of the US government and it's racism super predators, as if she and her fellow leaders aren't far more dangerous predators than any gang members who she say have to be brought to heel as if they're pets in need of disciplining by their masters
 
 "Video footage of Hillary Clinton defending the bill in 1994 by calling young people in gangs "super predators" who need to "be brought to heel" have been widely circulated during the campaign by activists in the Black Lives Matter protest movement."
 
