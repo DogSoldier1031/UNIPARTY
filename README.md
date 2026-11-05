@@ -46,7 +46,9 @@ The DNC are just as willing to  manipulate votes and corrupt elections in favor 
 
 https://www.cbsnews.com/news/dnc-interim-chairwoman-passed-debate-questions-along-to-clinton-campaign/
 
+"Hillary Clinton's campaign gained significant control over the Democratic National Committee's finances and strategy more than a year before the election in exchange for helping the party retire lingering debt from the 2012 presidential campaign, according to a new book by a former party chairwoman."
 
+https://www.npr.org/sections/thetwo-way/2017/11/03/561768006/book-reveals-clinton-campaign-effectively-controlled-dnc-as-early-as-2015
 
 And the Clintons have fucked Haiti over royally for years, even fighting against raising their minimum wages because DNC/GOP funders don’t want to lose their slave labor
 
