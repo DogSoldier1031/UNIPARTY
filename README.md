@@ -126,4 +126,10 @@ Not to mention the ACA hurting many and convincing many liberals that it's good 
 
 https://pmc.ncbi.nlm.nih.gov/articles/PMC4880224/
 
+Not to mention the many cold warrior idiots in the DNC that sound like any xenophobic right winger out there.  They even claim a milquetoast liberal like Bernie Sanders is a Russian asset.  Sounds just like the stupid “pinko commie” rhetoric, only towards the oligarchs the “Harvard Boys” helped take over Russia instead of actual communists.
+
+https://www.msnbc.com/the-beat-with-ari-melber/watch/dem-senator-calls-out-bernie-sanders-to-disavow-russian-support-1163739715653
+
+https://www.politico.com/amp/story/2018/02/16/bernie-sanders-russia-2016-election-interference-415691
+
 It’s a bad cop good cop regime where both parties play their role in enacting imperialism/fascism worldwide.  I could keep piling more and more examples on but there are literally too many to remember.  So I’m sorry, but I view blue and red MAGA as 2 wings of the same fascist regime.  
