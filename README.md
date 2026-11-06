@@ -14,6 +14,8 @@ https://www.opensecrets.org/industries/summary?cycle=All&ind=Q05&recipdetail=S
 
 https://whofundsmyrep.com/did-aipac-money-win
 
+https://ballotpedia.org/Endorsements_by_Track_AIPAC
+
 Some even support zionazis to the point they endorse MAGA republicans to keep the scary brown man with a Muslim sounding name out of office.
 
 https://abcnews.com/amp/US/wireStory/el-sayeds-primary-opponent-stuns-democrats-endorsing-republican-137749193
