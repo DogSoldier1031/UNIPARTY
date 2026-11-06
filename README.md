@@ -12,6 +12,8 @@ https://kfoxtv.com/news/nation-world/aipac-says-hundreds-of-pro-israel-democrats
 
 https://www.opensecrets.org/industries/summary?cycle=All&ind=Q05&recipdetail=S
 
+https://whofundsmyrep.com/did-aipac-money-win
+
 Some even support zionazis to the point they endorse MAGA republicans to keep the scary brown man with a Muslim sounding name out of office.
 
 https://abcnews.com/amp/US/wireStory/el-sayeds-primary-opponent-stuns-democrats-endorsing-republican-137749193
