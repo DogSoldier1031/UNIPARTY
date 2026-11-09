@@ -185,4 +185,6 @@ https://www.huffpost.com/entry/top-democrat-racist-tirade-zohran-mamdani_n_6861a
 
 https://www.bbc.com/news/world-us-canada-68971655
 
+https://www.politico.com/live-updates/2025/06/27/congress/muslim-democrats-mamdani-attacks-00429467
+
 It’s a bad cop good cop regime where both parties play their role in enacting imperialism/fascism worldwide.  I could keep piling more and more examples on but there are literally too many to remember.  So I’m sorry, but I view blue and red MAGA as 2 wings of the same fascist regime.  
