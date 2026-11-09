@@ -1,4 +1,4 @@
-# UNIPARTY
+## UNIPARTY
 
 Sorry but after watching all of these things happen it’s just solidified my view of both parties being full of heartless fascists.  A few examples:
 
@@ -178,5 +178,11 @@ Not to mention the many cold warrior idiots in the DNC that sound like any xenop
 https://www.msnbc.com/the-beat-with-ari-melber/watch/dem-senator-calls-out-bernie-sanders-to-disavow-russian-support-1163739715653
 
 https://www.politico.com/amp/story/2018/02/16/bernie-sanders-russia-2016-election-interference-415691
+
+More hateful rhetoric from top democrat officials 
+
+https://www.huffpost.com/entry/top-democrat-racist-tirade-zohran-mamdani_n_6861aab5e4b08e0b4a741231?utm_medium=Social&utm_source=reddit&utm_campaign=us_main
+
+https://www.bbc.com/news/world-us-canada-68971655
 
 It’s a bad cop good cop regime where both parties play their role in enacting imperialism/fascism worldwide.  I could keep piling more and more examples on but there are literally too many to remember.  So I’m sorry, but I view blue and red MAGA as 2 wings of the same fascist regime.  
