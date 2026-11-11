@@ -139,6 +139,10 @@ https://en.wikipedia.org/wiki/Omnibus_Counterterrorism_Act_of_1995
 
 https://www.google.com/goto?url=CAESggEBxCJF1-yNQnkGqBIXMEx5HcCYtX3-h2izRKfN4T3UW1AMY-mV8jy5p7k6S6N0A401XC5thMfYMgKbta62le60WqOGil2hc0tCB-vea-16YhKzMRRZT9t_Tq9EtdsSAUNWZ69MO8ty__D4RamDZSzaR-Nv3JVSLasJ3ktK8IRTt98b
 
+Not to mention Clinton and his colleagues signing the act that led to "our" media consolidating under and handful of corporations and gave rise tovthe flood of far right radio that broughtbus figures like Limbaugh and Alex Jones, thus opening the door for future movements like MAGA
+
+https://en.wikipedia.org/wiki/Telecommunications_Act_of_1996
+
 Then there’s all the democratic politicians who were happy to throw trans people and others under the bus for political gain.  Many are just like MAGA and only pretend to care about minorities if it gets them into power 
 
 https://www.google.com/goto?url=CAESngEBxCJF11aqBFtcEBRs4d54i6OpipJx2xHZhmvZ1nt-drarNaW-hJTDt70dcR4jXEDbfj0BFwjCIyONFwlkhL_TAUSkW6qVz3bsO63JQyS5DcOfuigl6St0XAfDtuvGLBp_Wg-hgBQUxQxthb4lfEmBcq5S70odmRkvunHVBTHqDg6AFBgrLgOWWNMaVdLOswgraYx9MboAD3ckgCgLpg
