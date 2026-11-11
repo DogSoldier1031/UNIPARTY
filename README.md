@@ -97,11 +97,11 @@ And the Obama regime, and especially Victoria Nuland, also helped to coup the Uk
 
 https://www.bbc.com/news/world-europe-26079957
  
-Their Nazi allies that they helped put in control of Ukraine then proceeded to roll back minority protections, build statues dedicated to Nazi veterans and renaming streets after them.  Literal allies with open Nazis who wear death skulls, wolfsangels, black suns and other favorite symbols of Hitler and his allies
+Their Nazi allies that they helped put in control of Ukraine then proceeded to roll back minority protections, build statues dedicated to Nazi veterans and renamed streets after them.  Literal allies with open Nazis who wear death skulls, wolfsangels, black suns and other favorite symbols of Hitler and his allies
 
 https://github.com/DogSoldier1031/Ukraine-Nazi-Examples-
 
-And one of the DNCs favorite possible presidential candidates is a ruthless anti homeless pos who was literally committing the acts that the Star Trek universe predicted would result in their improved society because of the uprisings it could cause among his homeless victims 
+And one of the DNCs favorite possible presidential candidates is a ruthless anti homeless pos who was literally committing one of the major actions that the Star Trek universe predicted would result in their improved society because of the uprisings it could cause among his homeless victims 
 
 https://www.pbs.org/newshour/show/californias-homeless-encampment-crackdown-draws-criticism-from-health-experts
 
@@ -121,7 +121,7 @@ https://www.facebook.com/story.php?story_fbid=10160458592229062&id=KHOU11&hpir=1
 
 https://www.nationalreview.com/news/biden-tells-interviewer-that-unlike-the-african-american-community-latino-community-is-diverse/
 
-NBC Newshttps://www.nbcnews.comBiden explains Indian-American remarks
+https://www.nbcnews.comBiden explains Indian-American remarks
 
 He also helped Bill with writing the law the rapidly militarized the police and made the black community an even bigger target
 
